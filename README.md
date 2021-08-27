@@ -1,14 +1,14 @@
 # Massacres
 Detail of massacres at different cities, towns and villages of Jammu
 
-[Massacre at Udhampur Tehsil District Headquarters]()
+1. [Massacre at Udhampur Tehsil District Headquarters]()
 
-[Massacre at Ramnagar Tehsil (District Udhampur)]()
+2. [Massacre at Ramnagar Tehsil (District Udhampur)]()
 
-[Kishtwar Tehsil (Udhampur District)]()
+3. [Massacre at Kishtwar Tehsil (Udhampur District)]()
 
-[The Massacre at Reasi]()
+4. [The Massacre at Reasi]()
 
-[Massacre of Jammu City]()
+5. [Massacre of Jammu City]()
 
-[Massacre of Kathua]()
+6. [Massacre of Kathua]()
