@@ -47,7 +47,6 @@
     Education, Azad Kashmir, was found murdered in her house along with her
     dead infant child, lying on her breast. Khawaja Ghulam Ali. P.S.1. who
     belonged to Bhadarwah and was posted here, succeeded in escaping from
-    
     the clutches of the murderous gangs and reached the Police Station, only to
     be handed back by his colleagues and subordinates to the R.S.S. goondas,
     who killed him by inches by cutting a limb and after enjoying the spectacle of
@@ -58,6 +57,8 @@
     Singh was later arrested under orders of Sheikh Muhammad Abdullah and
     put in Jammu Jail. It is not known what happened to him later. He was the
     son-in-law of General Janak Singh.
+    
+    
     Rajauri is about 70 miles from Reasi. The Hindus who were mostly
     money-lenders had removed most of their valuables. This being a Muslim
     majority area, the Government had already detailed a company to Rajauri
