@@ -91,8 +91,6 @@
       goondas also had a brengun. A convoy of two thousand Muslims from
       Rajpura and Kagowal left for Pakistan, but was attacked in the way. In
       Samba town, about ten thousand Muslims from the town and its suburbs
-
-
       collected for migration to Pakistan. Most of the male were invited to the town-
       pond on the pretext of forming a Peace Committee, but there they were
       surrounded by armed bands and in their absence, young girls from their
