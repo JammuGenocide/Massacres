@@ -1,4 +1,5 @@
-
+**Carnage in the Streets of Jammu and Kathua**
+      
       The situation in Jammu city and its surroundings was extremely
       precarious, even by the middle. of August. On my visit to Srinagar from
       Peshawar, I left via Banihal, but had to return back from Batote as I learnt
