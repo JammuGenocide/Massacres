@@ -59,8 +59,9 @@
       still waiting, the armed among them had been formed into three lines, the
       front one consisted of those having rifles while in the second row were those
       who had other deadly weapons. Among the officers on the spot were an
-      A.S.P., an Assistant Engineer, a Telegraph Supervisor and the S.D.M. There
-      were also several Army officers of lesser rank. Before the Maharaja's arrival,
+      A.S.P., an Assistant Engineer, a Telegraph Supervisor and the S.D.M.
+      
+      There were also several Army officers of lesser rank. Before the Maharaja's arrival,
       a convoy of Muslim refugees which had come from the interior of Kathua and
       had swelled into numbers while advancing towards the borders reached
       there. The army compelled them to pass through the Hindu mob; on reaching
@@ -75,9 +76,10 @@
       rifles and swords. Similarly, a convoy of two thousand Muslims which left
       village Bandore was attacked at Chhati Khoi, about three miles from the
       Pakistan border. A convoy of about 7000 Muslims left Chani Rodoon for
-      Pakistan; it was attacked at Heera Nagar. A convoy of 500 Muslims left
-      Kohatah, none of whom is claimed to have been able to enter Pakistan. A
-      convoy of 3000 Muslims from Budhi and Tala Mola which left for Pakistan,
+      Pakistan; it was attacked at Heera Nagar.
+      
+      A convoy of 500 Muslims left Kohatah, none of whom is claimed to have been able 
+      to enter Pakistan. A convoy of 3000 Muslims from Budhi and Tala Mola which left for Pakistan,
       was attacked at Mahi Chak. A convoy of about six thousand Muslims left
       Nagri, Runb and Chhatta villages for Pakistan, but was attacked at
       Khikhiyan. Muslims from villages Sallni, Hiranagar, Candi etc. gathered at
