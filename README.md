@@ -9,7 +9,7 @@ Detail of massacres at different cities, towns and villages of Jammu
 
 4. [The Massacre at Reasi](https://github.com/JammuGenocide/Massacres/blob/main/The%20Massacre%20at%20Reasi.md)
 
-6. [Massacre of Kathua]()
+6. [Massacre of Kathua](https://github.com/JammuGenocide/Massacres/blob/main/Massacre%20of%20Kathua.md)
 
 
 Some numbers that were collected and published by Civil & Military Gazette, 18th December 1947.
