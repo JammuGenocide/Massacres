@@ -14,7 +14,7 @@ Detail of massacres at different cities, towns and villages of Jammu
 
 Some numbers that were collected and published by Civil & Military Gazette, 18th December 1947.
 
-![Gazette](https://github.com/JammuGenocide/Massacres/blob/main/E3qO9l3WUAA4NDu.jpeg)
+![Gazette](https://github.com/JammuGenocide/Massacres/blob/main/massacredata.jpeg)
 
 
 **The massacre of Muslims of Jammu City 5, November 1947**
