@@ -55,9 +55,19 @@ Here is a factual report jointly submitted by two foreigners who visited the sub
       Sikh civilians, and all of them were slaughtered with the exception of forty persons, who managed to escape to
       Sialkot."
 
-**Masacre at Maogaon**
+**Masacre at Maogaon Oct, 23rd 1947**
 
       "On the instructions of the State Government, about twenty-five thousand Muslims from Miran Sahib area collected at 
       Maogaon to be evacuated to Pakistan. But as they were doing so, their women and all their personal belongings were 
       taken away from them by Dogra troops, and the rest made to stand in a line, whereupon they were riddled with machine-gun 
       bullets. Only one hundred of them escaped, hiding in maize fields."
+
+**Massacre at Akhnoor bridge Oct, 20th 1947**
+
+      On 20th Oct, about 15000 Muslims from Akhnoor and its adjoining areas on being forced to leave for Pakistan gathered in
+      the vicinity of the town and were led towards the Akhnoor bridge where Dogra soldiers opened fire killing a large number. 
+      It is claimed that the killing was so extensive that blood actually flowed on the bridge. On the same day, several attacks 
+      were launched on Muslims in Kathua district resulting in considerable deaths. According to the Civil & Military Gazette,
+      women & children were not separated they were also killed, only 100 survived.
+
+
