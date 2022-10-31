@@ -69,3 +69,19 @@
     of Rajauri that the mistake came to light. The tehsildar, Harjilal, ran away to
     Jammu along with some military personnel. Things would have been quite
     bad if the above reinforcement had arrived there.
+    
+    
+    
+    Rashid's father, brothers, sisters, wife, and a son were slaughtered Malik Abdul Rashid, a survivor from Reasi, currently settled in Rawalpindi, says   he was 22-year old when the carnage happened.
+    " Men, women, children were killed in the cruelest manner, maimed, intimidated. The carnage continued for several days. I lost my father, brothers, sisters, wife, and a son.
+
+    I lost all my dears; the genocide has haunted me all my life," he said. On 4 November 1947, when Dogra troops entered Reasi, two highly esteemed    citizens of the town, Khwaja Amkullah and Chaudhary Aziz-u-Din rushed to the office of then Deputy Commissioner Thakur Gavinder Singh, complaining against  the entry of the troops when Peace Committees, comprising Hindus and Muslims, were already in place to maintain peace. Both of them were shot dead in the   office.
+
+    People were mowed down with machine guns and swords during the night. And those who had survived were assembled in a field where they were put to death. Some women who escaped jumped into Chinab river to save their honour.
+
+    Khwaja Ali Muhammad of Bhadarwah who was performing his duties as a public prosecutor at Reasi went to a police station to save his life, but the duty  officer, a Dogra, handed him over to the RSS men. They dragged him out and tortured him so much that he begged them to kill him than torture him. But the barbarians cut his fingers one by one and told him 'we will send your fingers to Pakistan'. He was killed near the court premises in broad day light. "
+
+    Rashid said Maharaja Hari Singh orchestrated the carnage to eliminate Muslims from Jammu. "Muslims were not even allowed to have weapons for self defense, but Maharaja distributed arms to the marauders of his community," he said, adding the killers were trained and armed in RSS camps for the genocide.
+
+
+    Kashmiris fight for freedom Vol I & II by Muhammad Yusuf Saraf
